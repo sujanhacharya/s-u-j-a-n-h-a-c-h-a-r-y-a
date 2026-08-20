@@ -1,1 +1,0 @@
-# s-u-j-a-n-h-a-c-h-a-r-y-a
